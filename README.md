@@ -1,1 +1,1 @@
-# dhamrai-govt-college
+# Dhamrai-Govt-College
